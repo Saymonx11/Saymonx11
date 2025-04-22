@@ -1,4 +1,4 @@
-### Boas vindas ao meu Perfil 👽🥈
+### Boas vindas ao meu Perfil 👽🥇
 
 Meu nome é Saymon Serbai
 
